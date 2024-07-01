@@ -1,2 +1,2 @@
-# Aleja16.github.io
+# yery16.github.io
 Explora mi diario de aprendizaje 
